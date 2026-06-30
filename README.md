@@ -1,0 +1,2 @@
+# D2C GURU
+# D2C.GURU
